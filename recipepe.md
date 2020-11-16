@@ -1,0 +1,1 @@
+Put the cheese string in the egg roll wrap, fold the wrap untill you get to the end, put water at the end of the egg roll wrap, finish wrapping your cheese stick, fry in a oil pot, finally serve with an optional dipping sauce of tomato sauce.
